@@ -1,0 +1,1 @@
+Ok So i was just bored and thought this was cool that was it i guess its kinda cool but not that cool but i am bored now so i am going to do something else maybe i will go for a walk or something if it stops raining.
